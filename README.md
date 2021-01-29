@@ -11,3 +11,4 @@ Book: Gruber's complete guide to GRE
 69-101 problems completed
 Page 76
 Day 3:
+Basic math formulas
