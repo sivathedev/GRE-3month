@@ -12,3 +12,4 @@ Book: Gruber's complete guide to GRE
 Page 76
 Day 3:
 Basic math formulas
+Page 200-204 in Grube's complete guide to GRE
