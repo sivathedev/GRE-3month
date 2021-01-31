@@ -17,3 +17,5 @@ Day 4:
 GOt Manya book
 Study tomm
 Day 5:
+Got manya book again , the official GRE, barron, magoosh.
+Failed to study today
