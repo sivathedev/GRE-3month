@@ -1,4 +1,5 @@
 # GRE-3month
+Oh my followers! Ignore this thread as am using github as my everyday to-do list!
 90 day update
 Day 1: 
 27-01-2021
@@ -20,3 +21,4 @@ Day 5:
 Got manya book again , the official GRE, barron, magoosh.
 Failed to study today
 Study and plan tomorrow
+Day 6: Haven't started studying from the day books came home
