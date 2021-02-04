@@ -22,3 +22,5 @@ Got manya book again , the official GRE, barron, magoosh.
 Failed to study today
 Study and plan tomorrow
 Day 6: Haven't started studying from the day books came home
+Day 7: NO updates
+Day 8: Really not into the mood of studying. 
