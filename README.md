@@ -26,3 +26,7 @@ Day 7: NO updates
 Day 8: Really not into the mood of studying. 
 Aaaaarrrrrrghhhhhhhh what a Feb month it is!
 ):
+Day 9:
+Day 10:
+Day 11:
+DAy 12: Probabolity in magoosh
