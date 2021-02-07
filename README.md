@@ -29,5 +29,5 @@ Aaaaarrrrrrghhhhhhhh what a Feb month it is!
 Day 9:
 Day 10:
 Day 11:
-DAy 12: 07-02-2021
+Day 12: 07-02-2021
 Probabolity in magoosh Book for gre
