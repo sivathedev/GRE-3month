@@ -33,3 +33,4 @@ Day 12: 07-02-2021
 Probabolity in magoosh Book for gre
 Day 15:
 MPMC exam tommorrow (:
+Too much inconsistency
