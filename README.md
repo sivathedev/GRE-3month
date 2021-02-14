@@ -35,3 +35,5 @@ Day 15:
 MPMC exam tommorrow (:
 Inconsistency at it's peak
 Too much inconsistency
+Day :
+14-02-2021
