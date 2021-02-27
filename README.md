@@ -44,3 +44,4 @@ Happy Valentine's Day! lol
 MOnth 2:
 It has already been exactly a month since I started off this journey.
 Had only 3 productive days in the journey.
+BUt would definitely make the way through this month!
