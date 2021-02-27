@@ -41,3 +41,5 @@ Day :
 Happy Valentine's Day! lol
 23-02-2021
 1 month prep
+MOnth 2:
+It has already been exactly a month since I started off this journey
