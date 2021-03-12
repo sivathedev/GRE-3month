@@ -54,3 +54,5 @@ Dat 2
 04-03-2021
 ISC and TT contest tomorrow at CAC
 Update: Won TT contest and runner up at ISC
+11-03-2021
+Did Chap 1 in Manya
