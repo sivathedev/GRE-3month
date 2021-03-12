@@ -53,3 +53,4 @@ Dat 2
 03-03-2021
 04-03-2021
 ISC and TT contest tomorrow at CAC
+Update: Won TT contest and runner up at ISC
