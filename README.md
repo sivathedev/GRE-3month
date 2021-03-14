@@ -57,7 +57,7 @@ Update: Won TT contest and runner up at ISC
 10-03-2021
 Did Chap 1 in Manya
 11-03-2021
-Did chap 2 in Manya
+Did chap 2 in Manya ( 10 sums pending)
 13-03-2021
 Priviledged to be a judge for Area level contest Area 3!!
 14-03-2021
