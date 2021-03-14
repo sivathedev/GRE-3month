@@ -61,3 +61,4 @@ Did chap 2 in Manya ( 10 sums pending)
 13-03-2021
 Priviledged to be a judge for Area level contest Area 3!!
 14-03-2021
+Contest judge for Syndicate Toastmasters Club
