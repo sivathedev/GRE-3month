@@ -63,4 +63,5 @@ Priviledged to be a judge for Area level contest Area 3!!
 14-03-2021
 Contest judge for Syndicate Toastmasters Club
 16-03-2021
-
+18-03-2021
+Panel discussion for aishu in wipro
