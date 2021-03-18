@@ -66,3 +66,4 @@ Contest judge for Syndicate Toastmasters Club
 18-03-2021
 Panel discussion for aishu in wipro
 Started the content writing internship for wordsguru
+completed 1 article
