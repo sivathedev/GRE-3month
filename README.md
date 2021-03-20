@@ -68,4 +68,4 @@ Panel discussion for aishu in wipro
 Started the content writing internship for wordsguru
 completed 1 article.
 20-03-2021
-content writing 
+content writing intern
