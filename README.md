@@ -106,4 +106,5 @@ intern+gre
 29-04-2021
 30-04-2001 It has really been 3 months
 03-04-2021
-Magoosh quantitative comparison video done.
+Magoosh quantitative comparison videos done.
+7 videos in total
