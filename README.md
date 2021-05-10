@@ -112,3 +112,4 @@ Magoosh quantitative comparison videos done.
 05-05-2021
 06-05-2021
 10-05-2021
+14 pages of sowmya notes
