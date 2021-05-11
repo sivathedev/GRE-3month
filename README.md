@@ -115,3 +115,4 @@ Magoosh quantitative comparison videos done.
 14 pages of sowmya notes
 11-05-2021
 Completed sowmya notes - 1
+Completed percents and ratio magoosh videos
