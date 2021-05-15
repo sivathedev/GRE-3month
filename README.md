@@ -116,3 +116,4 @@ Magoosh quantitative comparison videos done.
 11-05-2021
 Completed sowmya notes - 1
 Completed percents and ratio magoosh videos
+15-05-2021
