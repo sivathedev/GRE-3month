@@ -117,4 +117,5 @@ Magoosh quantitative comparison videos done.
 Completed sowmya notes - 1
 Completed percents and ratio magoosh videos
 15-05-2021
+16-05-2021 - took mock test , score: 303
 18-05-2021
