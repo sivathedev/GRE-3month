@@ -120,3 +120,4 @@ Completed percents and ratio magoosh videos
 16-05-2021 - took mock test , score: 303
 18-05-2021
 23-05-2021
+24-05-2021
