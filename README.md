@@ -122,3 +122,4 @@ Completed percents and ratio magoosh videos
 23-05-2021
 24-05-2021
 25-05-2021
+26-05-2021
