@@ -123,3 +123,4 @@ Completed percents and ratio magoosh videos
 24-05-2021
 25-05-2021
 26-05-2021
+Vaccinated!
