@@ -117,7 +117,7 @@ Magoosh quantitative comparison videos done.
 Completed sowmya notes - 1
 Completed percents and ratio magoosh videos
 15-05-2021
-16-05-2021 - took mock test , score: 303
+16-05-2021 - took mock test 2, score: 303
 18-05-2021
 23-05-2021
 24-05-2021
@@ -135,5 +135,5 @@ Started studying using the pomodoro technique.
 ETS Book
 04-06-2021
 05-06-2021
-06-06-2021
+06-06-2021 - Mock 3; score: 293
 08-06-2021
