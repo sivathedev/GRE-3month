@@ -150,3 +150,4 @@ ETS Book
 19-06-2021
 20-06-2021
 21-06-2021
+22-06-2021 Algebra done in mahattan
