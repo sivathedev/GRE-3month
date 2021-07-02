@@ -158,4 +158,5 @@ ETS Book
 29-06-2021
 30-06-2021
 hey July!
-01-07-2021
+01-07-2021 Inequalities done
+02-07-21 2 exams
