@@ -166,5 +166,6 @@ hey July!
 08-07-21 Triangles done
 09-07-21
 11-07-21 Codenatives
-12-07-2021
-13-07-2021
+12-07-2021 Co ordinate geometry done
+13-07-2021 Selected for intern apt round
+14-07-2021 Percents done
